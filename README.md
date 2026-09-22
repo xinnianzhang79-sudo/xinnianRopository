@@ -1,2 +1,0 @@
-# xinnianRopository
-PPT Skill
